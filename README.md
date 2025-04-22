@@ -7,7 +7,7 @@ uriko ukoresha phone: fyonda ahanditse "code" uraheza ubibona urashobora nokubi 
 ## Important sources
 
 1. Genocide against Tutsi canon: https://francegenocidetutsi.org/sortwebent.html.fr
-2. 
+2. Ama notes yo muri space ya gana mubihe byose: https://github.com/rwagasore61/urumuri/tree/main
 
 ## Contact
 email me: sudorwagasore@proton.me
